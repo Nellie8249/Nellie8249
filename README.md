@@ -4,7 +4,7 @@
 - 😻 I'm looking to collaborate on language studying group
 - 📫 How to reach me ...my email #zhanzhenrong36@gmail.com
 - 😄 Pronouns: frendly, outgoing, brave
-- ⚡ SHARING MY FAV SONG TO YOU!!!
+- ⚡ SHARING MY FAV ANIMAL TO YOU!!!
 
 <!---
 Nellie Zhao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
